@@ -27,7 +27,7 @@ I am a 3rd-year Computer Engineering student at **Atatürk University**. My jour
 
 ### 📫 How to reach me
 
-- **LinkedIn:** [www.linkedin.com/in/ömer-faruk-ak-b3621a2a4](#) - **Email:** [omerfarukak44@gmail.com](mailto:omerfarukak44@gmail.com)
+- **LinkedIn:** [www.linkedin.com/in/ömer-faruk-ak-b3621a2a4](www.linkedin.com/in/ömer-faruk-ak-b3621a2a4) - **Email:** [omerfarukak44@gmail.com](mailto:omerfarukak44@gmail.com)
 
 ---
 
